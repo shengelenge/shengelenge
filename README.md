@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi there 👋 my name is Nic aka shengelenge
+
+Fun facts:
+  - Shengelenge is just a made up word I used for my LoL account back in 2012. 
 
 <!--
 **shengelenge/shengelenge** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
