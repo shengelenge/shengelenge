@@ -1,4 +1,4 @@
-### Hi there 👋 my name is Nic aka shengelenge
+### Hey everyone 👋 my name shengelenge
 
 Fun facts:
   - Shengelenge is just a made up word I used for my LoL account back in 2012. 
